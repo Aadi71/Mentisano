@@ -32,10 +32,15 @@ The truth is there are many reasons that people might find it difficult to open 
 “More than 50% of people in India facing severe depression in India.”
 
 Today’s global challenges have made clear the need for players across the behavioral health landscape and continuing to that Mentisano, brings to your ample applications to deal with stress, anxiety, depression, loneliness, and tiredness. Here is the gist of all features:
+
 Engaging Games — If the user plans to play a game to use their time efficiently they can come here and play flip the cards. Where the user has to flip the cards and match similar pictures. There are three levels of this game based on the hardness level.
+
 Rent a Person — Sometimes we only need that person who can understand our feelings and co-relate with our emotions. Mentisano brings the revolutionary idea of Rent a Person System, where our trained workers will make you feel comfortable and give you a gist of love, care, and affection just like a family member. I know the idea may sound little bit of cringe and inappropriate, but this has already been practiced in Japan. And this idea may dissolve loneliness and feeling alone in tough times.
+
 Breathing Exercises — Breathing exercises might assist you in relaxing since they simulate how your body feels when it is already relaxed. Meditation practitioners for thousands of years have known that befriending one’s breath keeps the mind and body healthy. If you have a sudden panic attack or want to calm yourself down just go to this section and swipe the breathing cards to your right and inhale-exhale.
+
 Book a therapist — Working in a therapeutic relationship with a psychologist, therapist, or counsellor allows you to explore your thoughts, feelings, and behavioral patterns.
-Relaxing Videos — Daily stress can take a toll on both physical and mental health. Various forms of relaxation have been demonstrated in numerous studies to help with the decrease of many chronic health concerns, as well as the restoration of energy and the cultivation of a more positive sense of self.If you are studying or wants to sleep or relax just switch to these relaxing videos section and watch various types of videos and relax.
+
+Relaxing Videos — Daily stress can take a toll on both physical and mental health. Various forms of relaxation have been demonstrated in numerous studies to help with the decrease of many chronic health concerns, as well as the restoration of energy and the cultivation of a more positive sense of self. If you are studying or wants to sleep or relax just switch to these relaxing videos section and watch various types of videos and relax.
 
 
